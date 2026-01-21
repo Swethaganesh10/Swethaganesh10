@@ -130,6 +130,7 @@ I'm seeking **Data Engineering roles** where I can:
 ---
 
 **Interested in working together? Let's connect!**
+
 🔗 **LinkedIn**: [Swetha Ganesh](https://www.linkedin.com/in/swetha-ganesh-6399271b8/)  
 📧 **Email**: ganesh.sw@northeastern.edu 
 
